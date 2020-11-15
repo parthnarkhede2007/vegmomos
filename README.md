@@ -1,0 +1,1 @@
+an amazing fantasy only a momo lover ca understand so i present you a recipe of veg aloo momos that can be made at home so easy splendid taste amazingggggggggggggg  recipe for steamed momos without steamer.
